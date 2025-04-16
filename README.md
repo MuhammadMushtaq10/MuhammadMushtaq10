@@ -2,7 +2,8 @@
 - 👀 I’m interested in machine learning, Data science , web development, app develpment.
 - 🌱 I’m currently learning all of the above xD!
 - 📫 How to reach me: 
-    gmail = mohammadmurtaza32@gmail.com or muhammadmushtaq.feb2003@gmail.com
+    gmail = muhammadmushtaq.feb2003@gmail.com
+    whatsapp = 03200271278
 - 😄 Pronouns: He/him (Null/nullvoid XD)
 
 
